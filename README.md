@@ -1,2 +1,2 @@
-Qiosz
-Malr
+Al-waleed
+Al-omairi
